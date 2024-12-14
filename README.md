@@ -1,0 +1,1 @@
+# ShopPulse-Real-Time-E-Commerce-Insights
